@@ -1,5 +1,5 @@
 ### Hello! Let me introduce myself:
-  ###### * I have a strong background of customer service in the airline industry
+  ###### * I have a strong customer service background in the airline industry
   ###### * Bachelor of Science at University of Hawaii at Manoa | Travel Industry Management at the Shidler College of Business
   ###### * Skills: analytical skills, problem-solving skills, collaboration, decision-making
   ###### * Working on transitioning into becoming a data analyst
